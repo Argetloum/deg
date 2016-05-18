@@ -1,3 +1,3 @@
 # DEG
 
-![DEG LOGO](http://s258.photobucket.com/user/jimifunguzz/media/rick-astley-dancing.gif.html)
+![DEG LOGO](http://i258.photobucket.com/albums/hh253/jimifunguzz/rick-astley-dancing.gif)
